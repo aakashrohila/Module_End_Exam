@@ -1,1 +1,1 @@
-[![Watch the video](https://drive.google.com/file/d/1VugLrw8I5FyfFqFI1IgaJ6LPKF3Zj1_p/view?usp=sharing)
+[![Exam Recording](https://user-images.githubusercontent.com/53647802/194820594-f8a47024-d920-48e6-87b9-c018cfc59ce3.png)](https://drive.google.com/file/d/1VugLrw8I5FyfFqFI1IgaJ6LPKF3Zj1_p/view?usp=sharing)
